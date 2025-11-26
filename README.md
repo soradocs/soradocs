@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently pursuing bachelors in Information Systems ( Artificial Intelligence )
+Currently pursuing Bachelor's of Information Systems in Artificial Intelligence ( AI )
 
 
 ## 🌐 Socials:
